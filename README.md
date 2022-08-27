@@ -1,4 +1,6 @@
-### [Alma de lapacho] - Ramón Ayala
+### Canción : [Alma de lapacho]
+
+###Autor : Ramón Ayala
 
 Lapacho
 Solito en el monte
